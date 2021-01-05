@@ -1,3 +1,3 @@
-# Welcome to my blog
+# I'm excited you are here. Welcome to my blog!
 
-I'm glad you are here. I plan to talk about ...
+I'm an IT professional working in this industry for more than 15 years. 
